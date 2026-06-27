@@ -24,7 +24,7 @@
 </p>
 
 <p align="center">
-</b>𝓲𝐭𝐫𝐚𝐩𝐩𝐞𝐝 & 𝐞𝐥𝐥𝐢𝐨𝐭 fict-kin ❄️ 𝘮𝘶𝘭𝘵𝘪𝘴𝘩𝘪𝘱𝘱𝘦𝘳 🌹
+</b>T͟H͟E͟ frozendebt & paycheck #1 fan ;3
 </p>
 
 

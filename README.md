@@ -1,27 +1,19 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=MyValent1ne&label=ꨄ&style=plastic&color=e3675d" />
-</p>
-<p align="center">
-  <i>"Even if 𝐭𝐨𝐦𝐨𝐫𝐫𝐨𝐰 forgets us,</i>
+  <img src="https://komarev.com/ghpvc/?username=MyValent1ne&label=ꨄ&style=plastic&color=332d73" />
 </p>
 
 <p align="center">
-  <i>I'll remember 𝐭𝐨𝐝𝐚𝐲."
+</b>⟡ 𓈒「˖ ' 𝐈 𝐛𝐞𝐥𝐢𝐞𝐯𝐞 𝐭𝐡𝐚𝐭 𝐠𝐨𝐨𝐝 𝐭𝐡𝐢𝐧𝐠𝐬.. 𝐨𝐧𝐥𝐲 𝐜𝐨𝐦𝐞 𝐭𝐨 𝐭𝐡𝐨𝐬𝐞 𝐰𝐡𝐨 𝐰𝐚𝐢𝐭 . " 」
 </p>
+<img src="IMG_5503.JPG" width="900">
 
 
-<img src="Titelloses 159_20260719173955.png" width="1000">
 
-
-<p align="center">
-</b>⟡ 𓈒「 ℰ𝒍𝒍𝒊𝒐𝒕 𝒇𝒊𝒄𝒌𝒊𝒏 .ᐟ 」
-</p>
-
-<p align="center"></b>m͟i͟n͟o͟r͟ ⸝⸝ 𝒟ᥱmіgіrᥣ ⸝⸝ sһᥱ / ᥲᥒᥡ .ᐟ ♡
+<p align="center"></b>m͟i͟n͟o͟r͟ ⸝⸝ 𝙝𝙚 / 𝙩𝙝𝙚𝙮 ❟ 𝙖𝙨𝙠 ⸝⸝ 𝗀𝖾𐓣ᑯ𝖾𝗋𝖿ᥣυ𝗂ᑯ ♡
 </p>
 
 <p align="center">
-</b>T͟H͟E͟ frozendebt & paycheck #1 fan ;3
+</b>#1 x-virus fan :P
 </p>
 
 
